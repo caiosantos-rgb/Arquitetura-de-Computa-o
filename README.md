@@ -51,3 +51,50 @@ Nestas aulas, demos continuidade à realização das tarefas propostas. Fomos av
 
 Lição 16 – 20 de outubro de 2026
 Nesta aula, realizámos a Tarefa n.º 6. Durante a atividade, procurei aplicar os conhecimentos adquiridos ao longo das aulas e cumprir todos os passos necessários para a sua realização. O trabalho correu bem e consegui desenvolver a tarefa com sucesso, ficando satisfeita com o resultado.
+
+
+
+Lição 17 – Continuação das tarefas
+Nesta aula, demos continuidade à realização das tarefas que tinham ficado pendentes das aulas anteriores. Procurei avançar com o trabalho e cumprir as atividades propostas. A aula foi importante para consolidar os conhecimentos adquiridos e continuar a desenvolver as tarefas com atenção.
+
+
+
+Lição 18 – Tarefa n.º 7
+Nesta aula, iniciámos a realização da Tarefa n.º 7. Ao longo da atividade, procurei compreender as instruções e realizar os diferentes passos necessários para concluir o trabalho. Foi uma oportunidade para aplicar os conhecimentos adquiridos anteriormente e desenvolver novas competências.
+
+
+
+Lição 19 – Continuação das tarefas
+Nesta aula, continuámos a trabalhar nas tarefas propostas, dando seguimento ao trabalho iniciado nas aulas anteriores. Fui avançando com as atividades e procurando resolver tudo de forma organizada e correta.
+
+
+
+Lição 20 – Atualização do portefólio e continuação da Tarefa n.º 7
+Durante esta aula, dedicámo-nos à atualização do portefólio, organizando os trabalhos e os registos realizados até ao momento. Também demos continuidade à Tarefa n.º 7, procurando avançar na sua resolução e concluir as partes que ainda estavam pendentes.
+
+
+
+Lição 21 – Continuação da tarefa
+Nesta aula, continuámos a desenvolver a tarefa que estava em andamento. Procurei seguir as orientações dadas e melhorar o trabalho já realizado, de forma a garantir que todos os elementos necessários estavam incluídos.
+
+
+
+Lição 22 – Finalização da tarefa e atualização dos sumários
+Nesta aula, concluímos a tarefa que tínhamos vindo a desenvolver. Para além disso, fizemos a atualização dos sumários, mantendo o registo das atividades realizadas ao longo das aulas organizado e atualizado. Foi uma aula produtiva, pois conseguimos terminar o trabalho pendente.
+
+
+
+Lição 23 – Substituição do professor
+Nesta aula, o professor habitual faltou e tivemos uma substituição. A aula decorreu com a presença de outro professor, que ficou responsável por acompanhar a turma durante esse período. Foi uma aula diferente das habituais, devido à ausência do professor.
+
+
+
+Lição 24 – Continuação do portefólio
+Nesta aula, demos continuidade à organização e atualização do portefólio. Fomos reunindo e organizando os trabalhos realizados nas aulas anteriores, de forma a manter todos os conteúdos devidamente registados. Procurei deixar o portefólio mais completo e organizado.
+
+
+
+Lição 25 – Continuação do portefólio
+Nesta aula, continuámos a trabalhar na atualização do portefólio, revendo os conteúdos e acrescentando os trabalhos que ainda estavam em falta. Esta atividade permitiu-me organizar melhor os registos das aulas e manter o portefólio atualizado. A aula foi produtiva e consegui avançar com o trabalho.
+
+
